@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @ngokumon
-- 👀 I’m interested in gewhgrwhr eh
-- 🌱 I’m currently learning ejuyntjh hetrh
-- 💞️ I’m looking to collaborate on jtejtkjet herth
-- 📫 How to reach me jrtyktek htrh
-- 😄 Pronouns: strut hterh
-- ⚡ Fun fact: urtuitu rfh
+- 👀 I’m interested in gewhgrwhr ehw
+- 🌱 I’m currently learning ejuyntjh hetrhd
+- 💞️ I’m looking to collaborate on jtejtkjet herthr
+- 📫 How to reach me jrtyktek htrhh
+- 😄 Pronouns: strut hterhr
+- ⚡ Fun fact: urtuitu rfhg
 
 <!---
 ngokumon/ngokumon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
